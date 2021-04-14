@@ -1,0 +1,1 @@
+![휴학](https://search.pstatic.net/common/?src=http%3A%2F%2Fblogfiles.naver.net%2FMjAxOTA5MDdfMzkg%2FMDAxNTY3ODU0OTQ3Mzg5.O31gmJnc_LQRKlHhAyVMA8zRvCQXaQ_9BgP1IJF0hAYg.NMo12UpaoUT3i3-tSupjicBxGVZejmhdGrgCAQQnjNAg.JPEG.114632%2F%25C5%25F0%25BB%25E7%25C2%25A9_800.JPG&type=sc960_832)
